@@ -7,5 +7,6 @@ My name is Athena! I am currently a first year Masters student studying Medical 
  
 
  
+![IMG_6021](https://github.com/user-attachments/assets/e3cdc4e1-3082-4fca-911a-bf47de683402)
 
 
